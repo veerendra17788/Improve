@@ -1,0 +1,3 @@
+In finance, "FAANG" is an acronym that indicates the stocks of five prominent American technology companies: Facebook, Amazon, Apple, Netflix, and Alphabet (GOOG) (previously known as Google).
+
+The term was coined by Jim Cramer. He is the television host of CNBC's Mad Money. He praised these companies for implying "totally dominant in their markets". Initially, the term FANG was used, with Apple—the second "A" in the acronym—added in 2017.
